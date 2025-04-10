@@ -3,7 +3,7 @@
 Are you ready to enter the **craziest drifting arena** on the web? 🚗💨  
 **Drift Boss Unblocked 66 | 76 | 77** lets you dive into an **insane drifting adventure** with **turbo cars**, **epic speed**, and **unstoppable turns** – all right in your browser! No download. No limits. Just pure **drift domination**!
 
-## <a href="https://izigames.net/"👉 Click To Play Drift Boss Unblocked 👈</a>
+## <a href="https://izigames.net/">👉 Click To Play Drift Boss Unblocked 👈</a>
 
 ---
 
